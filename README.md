@@ -9,6 +9,6 @@ this guy is skibidi 👇
 
 **currently learning:** c++
 
-**contact:** i only use bluesky so contact me on bluesky
+**contact:** i only use bluesky and x so contact me on bluesky and x
 
 **fun fact:** i sleep around 7-10 am
