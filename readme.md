@@ -14,3 +14,6 @@ im @ugxd but made for my archives
 
 ## is @ugxd dead?
 no. hes just playing spelling bee.
+
+## if hes not then is @pinn1s dead?
+ofc, on november 3, 2025, so this repo is made before its too late
